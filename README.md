@@ -1,2 +1,2 @@
 # .github
-Download Fold Card app to turn everyday spending into bitcoin-powered value with a simple card experience, clear activity tracking, rotating chances to earn, and tools for managing purchases, balance, and perks in one secure mobile account built for modern users seeking smart ways to get more from each transaction. сео
+Download Giving Assistant to find smarter ways to save while shopping online, compare offers quickly, and support charitable giving with every eligible purchase. Use Giving Assistant cash back tools to turn everyday buys into rewards and simple donations for causes you care about.
